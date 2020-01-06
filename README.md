@@ -7,3 +7,9 @@ https://www.yang2020.com/policies/supporting-historically-black-colleges-and-uni
 
 https://www.yang2020.com/policies/every-vet-under-a-roof-initiative/
 
+
+https://www.yang2020.com/policies/pathway-to-citizenship-2/
+
+
+
+https://www.yang2020.com/policies/support-the-dream-act/
